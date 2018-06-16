@@ -1,0 +1,1 @@
+Bir vekil adınıza oy kullanımını yönetir. Assetex forumunda vekil olarak görev almaya gnüllü kişileri bulabilirsiniz  [Assetextalk](https://assetextalk.org/index.php/board,75.0.html). 
